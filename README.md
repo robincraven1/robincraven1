@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @robincraven1
 - 👀 I’m interested in football
-- 🌱 I’m currently studying CS at university
+- 🌱 I’m currently studying CS at Durham university
